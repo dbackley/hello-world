@@ -1,2 +1,3 @@
 # hello-world
- ¯\_(ツ)_/¯
+ i am terrified of this technology but also intrigued
+ 
